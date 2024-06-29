@@ -1,1 +1,1 @@
-# prison-life-script
+# THIS SCRIPT NOT MINE!
